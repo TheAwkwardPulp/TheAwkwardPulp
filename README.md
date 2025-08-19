@@ -13,6 +13,6 @@ What I'm Learning and Why
 
 How to Contact Me, and stuff
 ----------------------------
-Anyhow, if you want to talk to me about a project I'm working on, an idea you might want to collab on, or just strike up some friendly conversation, my email is <daylanproffesional@gmail.com> (Yes, I know professional is spelled wrong; the awful thing about having the foresight to get a professional email at 13 is not knowing how to *spell it* correctly)
+Anyhow, if you want to talk to me about a project I'm working on, an idea you might want to collab on, or just strike up some friendly conversation, my email is <dj.wynn.professional@gmail.com>.
 
 May God bless you!
